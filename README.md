@@ -20,4 +20,4 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on WEB APP DEVELOPMENT
 - 📫 How to reach me: CAMARGOLEOH@GMAIL.COM
 - 😄 Pronouns: HE/HIM
-- ⚡ Fun fact: NOT A COMPUTER SCIENCE GRADUATED, I CAME FROM GEOMATICS, LEARNING PROCESS IS A LITTLE HARDER I THINK
+- ⚡ Fun fact: I CAME FROM GEOMATICS, LEARNING THE ROPES IS A LITTLE HARDER I THINK
